@@ -3,6 +3,7 @@
 Meet the MHS Drumline 2016-2017 
 
 Basses
+<Liam Self >
 Liam Self 
 Eric Gurrero
 Guillermo Rodrigz
