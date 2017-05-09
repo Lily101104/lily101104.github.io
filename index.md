@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+# Welcome to Manor High School Percussion Page
 
 You can use the [editor on GitHub](https://github.com/Lily101104/lily101104.github.io/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
