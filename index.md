@@ -1,33 +1,37 @@
-# Welcome to Manor High School Percussion Page
+# **Welcome to Manor High School Percussion Page**
+
 
 Meet the MHS Drumline 2016-2017 
 
-Snare line 
 
-Haymanot Eshetu
+**Snare line**
 
-Gerardo Benitez Rodriguez
 
-Lilliana Gonzales
+_Haymanot Eshetu_
 
-Aiden Blankenship
+_Gerardo Benitez Rodriguez_
 
-Quadline
+_Lilliana Gonzales_
 
-Fernado Quintero 
+_Aiden Blankenship_
 
-Austin Blankenship
+**Quadline**
 
-Bassesline 
-##<Liam Self >
 
-Liam Self 
+_Fernado Quintero_ 
 
-Eric Gurrero
+_Austin Blankenship_
 
-Guillermo Rodrigz
+**Bassesline** 
 
-Max Marteniz 
+
+_Liam Self_ 
+
+_Eric Gurrero_
+
+_Guillermo Rodrigz_
+
+_Max Marteniz_ 
 
 
 
