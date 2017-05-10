@@ -18,9 +18,9 @@ _Aiden Blankenship_
 **Quadline**
 
 
-_Fernado Quintero_ 
+-_Fernado Quintero_ 
 
-_Austin Blankenship_
+-_Austin Blankenship_
 
 **Bassesline** 
 
