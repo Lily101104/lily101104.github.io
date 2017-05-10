@@ -2,7 +2,23 @@
 
 Meet the MHS Drumline 2016-2017 
 
-Basses
+Snare line 
+
+Haymanot Eshetu
+
+Gerardo Benitez Rodriguez
+
+Lilliana Gonzales
+
+Aiden Blankenship
+
+Quadline
+
+Fernado Quintero 
+
+Austin Blankenship
+
+Bassesline 
 ##<Liam Self >
 
 Liam Self 
@@ -13,7 +29,7 @@ Guillermo Rodrigz
 
 Max Marteniz 
 
-### Markdown
+
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
