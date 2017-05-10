@@ -39,6 +39,12 @@ _Max Marteniz_
 "Music is your own experiance, your own thoughts your wisdom. If you don't live it, it wont come out of your horn. They teach you theres a boundary line to music. But, man, theres no boundary lined to art"
 -Charile Parker 
 
+**Senior Quotes about band**
+
+![Image](srchttps://www.maintune.com/blogs/posts/inspirational-marching-band-quotes)
+
+
+
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
