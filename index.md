@@ -1,4 +1,4 @@
-# **Welcome to Manor High School Percussion Page**
+### **Welcome to Manor High School Percussion Page**
 
 
 Meet the MHS Drumline 2016-2017 
@@ -18,9 +18,9 @@ _Aiden Blankenship_
 **Quadline**
 
 
--_Fernado Quintero_ 
+_Fernado Quintero_ 
 
--_Austin Blankenship_
+_Austin Blankenship_
 
 **Bassesline** 
 
