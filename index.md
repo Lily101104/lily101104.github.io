@@ -2,16 +2,16 @@
 
 Meet the MHS Drumline 2016-2017 
 
-##Basses
+Basses
 ##<Liam Self >
 
-##Liam Self 
+Liam Self 
 
-##Eric Gurrero
+Eric Gurrero
 
-##Guillermo Rodrigz
+Guillermo Rodrigz
 
-##Max Marteniz 
+Max Marteniz 
 
 ### Markdown
 
