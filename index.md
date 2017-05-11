@@ -41,7 +41,7 @@ _Max Marteniz_
 
 **Senior Quotes about band**
 
-![Image](srchttps://www.maintune.com/blogs/posts/inspirational-marching-band-quotes)
+<img src="https://fineartamerica.com/featured/the-marching-band-lyudmila-tomova.html" alt="alt text" title="Title" />
 
 
 
