@@ -1,7 +1,7 @@
 ### **Welcome to Manor High School Percussion Page**
 
 
-_Percusison_
+_Percussion_
 
 Manor High School is a Successful Section Having been placed in state to our Windonsombo Percussion Soloist as well as our other Soloist. We consist of a Drumline(Snares, Quads, and Basses). Our pit(keyboard players, timpani, synthesizer, and other percussionists) in the fall semester. During the spring we are divide into Our respectible bands.
 
