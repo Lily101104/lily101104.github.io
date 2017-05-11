@@ -39,7 +39,7 @@ _Max Marteniz_
 "Music is your own experiance, your own thoughts your wisdom. If you don't live it, it wont come out of your horn. They teach you theres a boundary line to music. But, man, theres no boundary lined to art"
 -Charile Parker 
 
-**Senior Quotes about band**
+**In band we are asked to create a picture to show the world from a young age to paint a canvese with colors and outline a image. Each canvese or also known as paintings are diffrent, as like music. Marching band impirticular when learning a new peices of music it is hard, but yet we all have diffrent reasons to bethere. But when the music plays at football games and preformances the feeling is exhilarating.**
 
 <img src="https://fineartamerica.com/featured/the-marching-band-lyudmila-tomova.html" alt="alt text" title="Title" />
 
