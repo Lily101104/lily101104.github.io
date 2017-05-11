@@ -1,10 +1,14 @@
 ### **Welcome to Manor High School Percussion Page**
 
 
-Meet the MHS Drumline 2016-2017 
+**In band we are asked to create an image to show the world, even from a young age to paint an outlined image. Each canvese  is diffrent, as like music. Marching band impirticular when learning a new peices of music is hard, but yet we all have diffrent reasons to be there. Although our main reason over all is when we are on that feild nothing else matters. The world is in the palm of our hand, it is our time to shine. When we play that feeling is exhilarating beyond words.**
 
 
-**Snare line**
+Meet the MHS Drumline 
+2016-2017 
+
+
+**Snareline**
 
 
 _Haymanot Eshetu_
@@ -39,7 +43,8 @@ _Max Marteniz_
 "Music is your own experiance, your own thoughts your wisdom. If you don't live it, it wont come out of your horn. They teach you theres a boundary line to music. But, man, theres no boundary lined to art"
 -Charile Parker 
 
-**In band we are asked to create a picture to show the world from a young age to paint a canvese with colors and outline a image. Each canvese or also known as paintings are diffrent, as like music. Marching band impirticular when learning a new peices of music it is hard, but yet we all have diffrent reasons to bethere. But when the music plays at football games and preformances the feeling is exhilarating.**
+
+
 
 <img src="https://fineartamerica.com/featured/the-marching-band-lyudmila-tomova.html" alt="alt text" title="Title" />
 
