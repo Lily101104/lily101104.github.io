@@ -47,9 +47,11 @@ Friday
 May 12, 2017 
 GAlAXY THEMED BAND BANQUET 
 
+
 MONDAY 
 May 15, 2017 
 Manor band movment camp 
+
 
 TUESDAY 
 May 16, 2017
@@ -57,19 +59,23 @@ Manor band movment camp
 
 CONCERT 7:00pm
 
+
 WENSDAY
 May 17, 2017
 Manor band movment camp 
 
+
 THURSDAY 
 May 18, 2017
 Manor band movment camp 
+
 
 FRIDAY
 May 19, 2017
 Manor band movment camp
 
 Fall preview CONCERT 7:00pm
+
 
 **Insperational Band Quotes**
 
