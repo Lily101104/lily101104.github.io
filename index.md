@@ -74,7 +74,7 @@ FRIDAY
 May 19, 2017
 Manor band movment camp
 
-Fall preview CONCERT 7:00pm
+Fall preview CONCERT @7:00pm
 
 
 **Insperational Band Quotes**
