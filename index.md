@@ -12,7 +12,7 @@ Manor High School is a Successful Section Having been placed in state to our Win
 Meet the MHS Drumline 
 2016-2017 
 
-![Meet the MHS Drumline 2016-2017]({{https://lily101104.github.io}}/IMG_4294-2.JPG)
+![Meet the MHS Drumline 2016-2017]({{https://lily101104.github.io}}/IMG_4294.JPG)
 
 
 **Snareline**
