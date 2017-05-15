@@ -30,7 +30,8 @@ _Lilliana Gonzales_
 _Aiden Blankenship_
 
 ![The Members]({{https://lily101104.github.io}}/IMG_4297.JPG)
-![;)]({{https://lily101104.github.io}}/IMG_4296.JPG)
+
+![;)]({{https://lily101104.github.io}}/IMG_4296.PNG)
 
 **Quadline**
 
