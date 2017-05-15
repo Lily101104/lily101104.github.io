@@ -51,6 +51,29 @@ _Guillermo Rodrigz_
 
 _Max Marteniz_ 
 
+**Stand Symboline**
+
+_Kristy_
+
+_Jacob_
+
+_Isaac J_
+
+**Pit**
+
+_Kristy_
+
+_Christain W_
+
+_Merari_
+
+_Larissa_
+
+_Amani Davis_
+
+_Jacob_
+
+_Isaac J_
 
 **UPDATES**
 
