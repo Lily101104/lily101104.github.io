@@ -1,5 +1,7 @@
 ### **Welcome to Manor High School Percussion Page**
 
+![Welcome]({{https://lily101104.github.io}}/IMG_4292.JPG)
+
 
 _Percussion_ 
 
