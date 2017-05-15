@@ -8,11 +8,14 @@ _Percussion_
 Manor High School is a Successful Section Having been placed in state to our Windonsombo Percussion Soloist as well as our other Soloist. We consist of a Drumline(Snares, Quads, and Basses). Our pit(keyboard players, timpani, synthesizer, and other percussionists) in the fall semester. During the spring we are divide into Our respectible bands.
 
 
+![Meet the MHS Drumline 2016-2017]({{https://lily101104.github.io}}/IMG_4294.JPG)
+
 
 Meet the MHS Drumline 
 2016-2017 
 
-![Meet the MHS Drumline 2016-2017]({{https://lily101104.github.io}}/IMG_4294.JPG)
+
+
 
 
 **Snareline**
