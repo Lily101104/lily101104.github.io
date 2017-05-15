@@ -53,11 +53,14 @@ _Max Marteniz_
 
 **Stand Symboline**
 
+![Go line!]({{https://lily101104.github.io}}/IMG_4293.JPG)
+
 _Kristy_
 
 _Jacob_
 
 _Isaac J_
+
 
 **Pit**
 
