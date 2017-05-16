@@ -49,7 +49,7 @@ _Eric Gurrero_
 
 _Guillermo Rodrigz_
 
-_Max Marteniz_ 
+_Maxius Marteniz_ 
 
 ![JUST DO IT]({{https://lily101104.github.io}}/IMG_3682.JPG)
 
@@ -58,28 +58,28 @@ _Max Marteniz_
 
 ![Go line!]({{https://lily101104.github.io}}/IMG_4293.JPG)
 
-_Kristy_
+_Kristy Lavache_
 
-_Jacob_
+_Jacob Rodriguez_
 
-_Isaac J_
+_Isaac Jimenez_
 
 
 **Pit**
 
-_Kristy_
+_Kristy Lavache_
 
-_Christain W_
+_Christian Wallace_
 
-_Merari_
+_Merari Rios-zetina_
 
-_Larissa_
+_Larissa Rivera_
 
-_Amani Davis_
+_Amani Wilkins_
 
-_Jacob_
+_Jacob Rodriguez_
 
-_Isaac J_
+_Isaac Jimenez_
 
 **UPDATES**
 
@@ -125,12 +125,20 @@ Fall Preview CONCERT @7:00pm
 "Music is your own experiance, your own thoughts your wisdom. If you don't live it, it wont come out of your horn. They teach you theres a boundary line to music. But, man, theres no boundary lined to art"
 -Charile Parker 
 
-<img src="HHS visitor game.jpg">
-
-
-<img src="https://fineartamerica.com/featured/the-marching-band-lyudmila-tomova.html" alt="alt text" title="Title" />
-
-
+**LEGACY**
+ 
+ As the years come and go as do people. Our section expands and shrinques each year with people coming in, yet our legacy remain, as do our traditions. The imprint that people have on our lives inspires us and others drive to be better. What is our legacy? Who will carry it out? Who will the next Drumline consist of?
+ 
+ **To the Drumline of 2017-2018**
+ 
+ _What will your legacy be to the future generations of The MHS Percussion section?_
+ 
+ _What will be a tradition?_
+ 
+ _Who will you insipre?_
+ 
+ **GOOD LUCK AT TRYOUTS TO OUR FUTURE!**
+ 
 
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
