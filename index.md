@@ -56,14 +56,13 @@ _Maxius Marteniz_
 
 **Stand Symboline**
 
-![Go line!]({{https://lily101104.github.io}}/IMG_4293.JPG)
-
 _Kristy Lavache_
 
 _Jacob Rodriguez_
 
 _Isaac Jimenez_
 
+![Go line!]({{https://lily101104.github.io}}/IMG_4293.JPG)
 
 **Pit**
 
