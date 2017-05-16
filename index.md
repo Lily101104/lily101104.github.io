@@ -51,7 +51,7 @@ _Guillermo Rodrigz_
 
 _Maxius Marteniz_ 
 
-![JUST DO IT]({{https://lily101104.github.io}}/IMG_3682.JPG)
+![JUST DO IT]({{https://lily101104.github.io}}/IMG_3268.JPG)
 
 
 **Stand Symboline**
