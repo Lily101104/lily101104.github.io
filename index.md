@@ -124,6 +124,7 @@ Fall Preview CONCERT @7:00pm
 "Music is your own experiance, your own thoughts your wisdom. If you don't live it, it wont come out of your horn. They teach you theres a boundary line to music. But, man, theres no boundary lined to art"
 -Charile Parker 
 
+
 **Picture Gallery**
 
 ![;)]({{https://lily101104.github.io}}/IMG_6795.JPG)
