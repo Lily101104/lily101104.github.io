@@ -143,7 +143,7 @@ Fall Preview CONCERT @7:00pm
 
 **LEGACY**
  
- As the years come and go as do people. Our section expands and shrinques each year with people coming in, yet our legacy remain, as do our traditions. The imprint that people have on our lives inspires us and others drive to be better. What is our legacy? Who will carry it out? Who will the next Drumline consist of?
+ As the years come and go as do people. Our section expands and shrinks each year with people coming in, yet our legacy remains, as do our traditions. The imprint that people have on our lives inspires us and drive others to do better. What is the legacy you will leave behind? Who will carry it out? Who will the next Drumline consist of?
  
  **To the Drumline of 2017-2018**
  
