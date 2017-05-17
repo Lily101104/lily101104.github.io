@@ -126,6 +126,20 @@ Fall Preview CONCERT @7:00pm
 
 **Picture Gallery**
 
+![;)]({{https://lily101104.github.io}}/IMG_6795.JPG)
+
+![;)]({{https://lily101104.github.io}}/IMG_6794.JPG)
+
+![;)]({{https://lily101104.github.io}}/IMG_6793.JPG)
+
+![;)]({{https://lily101104.github.io}}/IMG_6792.JPG)
+
+![;)]({{https://lily101104.github.io}}/IMG_6790.JPG)
+
+![;)]({{https://lily101104.github.io}}/IMG_6791.JPG)
+
+![;)]({{https://lily101104.github.io}}/IMG_6789.JPG)
+
 
 **LEGACY**
  
