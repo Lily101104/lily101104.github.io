@@ -124,6 +124,9 @@ Fall Preview CONCERT @7:00pm
 "Music is your own experiance, your own thoughts your wisdom. If you don't live it, it wont come out of your horn. They teach you theres a boundary line to music. But, man, theres no boundary lined to art"
 -Charile Parker 
 
+**Picture Gallery**
+
+
 **LEGACY**
  
  As the years come and go as do people. Our section expands and shrinques each year with people coming in, yet our legacy remain, as do our traditions. The imprint that people have on our lives inspires us and others drive to be better. What is our legacy? Who will carry it out? Who will the next Drumline consist of?
